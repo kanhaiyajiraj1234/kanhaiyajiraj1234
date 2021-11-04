@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **C++,PYHTON AND JAVA**
 
-- 📫 How to reach me **kairaj353@gmail.com**
+- 📫 How to reach me **kanhaiyara651@gmail.com**
 
 - ⚡ Fun fact **A diamond will not dissolve in acid. The only thing that can destroy it is intense heat.**
 
